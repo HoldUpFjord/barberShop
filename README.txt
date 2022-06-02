@@ -1,1 +1,1 @@
-![https://imgur.com/a/RAzozrx]barbershop.gif
+![](https://imgur.com/a/RAzozrx)
